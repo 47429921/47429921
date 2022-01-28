@@ -1,6 +1,6 @@
 ### Hi 47429921 is here.
-#This person haven't complete any big project.
-#So nothing can be place here :D
+>This person haven't complete any big project.
+>So nothing can be place here :D
 
 <!--
 **47429921/47429921** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
