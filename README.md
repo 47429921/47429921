@@ -1,6 +1,7 @@
 ### Hi 47429921 is here.
 >This person hasn't completed any big project yet.  
 >So nothing can be place here :D  
+> (Most projects are private)
 
 ***
 
